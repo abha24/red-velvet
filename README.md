@@ -1,0 +1,1 @@
+The recipe is about making milkshakes easily and those who love milk products this is the best thing to have as a snack,lunch,dinner etc. Cause it is said that milk is a complete food.
